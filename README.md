@@ -1,1 +1,1 @@
-THis contians some typows
+This contains some typos
